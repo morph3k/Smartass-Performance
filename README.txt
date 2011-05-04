@@ -1,0 +1,1 @@
+This is my very first attempt to mess with any code outside of html and small things like that. My phone is just always needing a little more pep, but without the death of not using smartass governor. I'm trying to combine the best of both together (in my opinion) and see how it works out.
